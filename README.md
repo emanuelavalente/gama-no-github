@@ -1,0 +1,1 @@
+Estou sem palavras para descrever como o curso está superando minhas expectativas e como estou animada. A didática é excelente, a formatação dos vídeos na medida e os desafios proporcionam uma aprendizagem rica e ativa. 
